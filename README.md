@@ -1,0 +1,2 @@
+HI
+LIFE IS BAD
